@@ -1,0 +1,1 @@
+# This is a cool project I've been working on, trying to master my Html, CSS and Javascript skills, adding fancy colors and animations, I'll keep practicing in order to become an aunique web developer, enjoy 🌟🌟🌟
